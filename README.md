@@ -27,3 +27,5 @@ I went my profile and resumé with attributed them in private until I get certif
 I had my environment not to render animations, slides, 3D objects with physics but develop web projects
 and many of other game-engine enviromental things up to intermediate level. 
 I really would like to show my certificates and succeed projects as soon as possible on my profile here and a new LinkedIN account.
+
+Powered by https://open.spotify.com/playlist/7DcBAu0KXSoAGkQU88924L?si=f20e1b1402c74194
