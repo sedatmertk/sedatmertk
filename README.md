@@ -17,7 +17,7 @@ The main issue is to get enough funds to contribute online projects to spread in
 And also make people understand the academics ethic when they're on computer. Significant geographies have uneducated people/developers like hackers, 
 stealers of ideas of projects, using the free-shared articles to make money. These are the informations and aspects of mine shared with you.
 
-For a person who uses GIT Bash on his other account, I had plenty of bad economical and psychological conditions to focus on my matters. 
+For a person who uses GIT Bash on his other account, I had plenty of bad conditions to focus on my matters. 
 
 I also quited my department of energy. I am now challenging to get certificates in business-technology-online certifications via skill platforms. 
 There is no department or education program that I have settled in. I have a few contacts to be my guides. 
